@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CyberSecuritymen
-- 👀 I’m interested in CyberSecurity & EthicalHacker 
-- 🌱 I’m currently learning Ethical Hacker and Starting in Cyber Security 
+- 👀 I’m interested in CyberSecurity & EthicalHacker and programming 
+- 🌱 I’m currently learning Ethical Hacker and programming and Starting in Cyber Security 
 - 💞️ I’m looking to collaborate on any one around the world his interested in Ethical Hacker & Cyber Security 
 - 📫 How to reach me on Discord app  " Samer95#6813 " 
 
